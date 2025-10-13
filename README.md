@@ -1,5 +1,4 @@
 ## hiya ˗ˏˋ ★ ˎˊ˗
-#### my name is alex, and my pronouns are she/her 
 #### you can find me either studying, on roblox, or on ponytown! ⋆✴︎˚｡⋆
 #### music is life - give me song recommendations!! (check out my playlists!!)
 
