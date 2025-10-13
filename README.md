@@ -27,7 +27,7 @@ on pt, im either offtab (for studying), making ponies or chatting with close fri
 #### so yeah,,, uhhm,, gulps,, hi again ฅ≽(•⩊ •マ≼
 #### if you want to find out more about me then check out my strawpage!!
 #### [13/10/25 - NOT FINISHED, STILL WIP]
-#### my dms are always open on discord (links)
+#### my dms are always open on discord (my username is in guns.lol in links)
 
 goodbye. ⋆✴︎˚｡⋆
 
