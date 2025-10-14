@@ -4,7 +4,7 @@
 
 ## ── .✦ ROBLOX ✦. ──
 #### my roblox username will be linked in my github<3 . i may not see your friend request at first, since i got so many of my friends online (╥﹏╥)
-#### my favourite games include: regretevator ✶ pressure ✶ doors ✶ evade ✶ grace ✶ sewh ✶ zombie attack ✶ 4saken
+#### my favourite games include: regretevator ✶ pressure ✶ doors ✶ evade ✶ grace ✶ sewh
 #### pls int if you enjoy any of these! (˶˃ ᵕ ˂˶)
 
 ## ── .✦ PONYTOWN ✦. ──
