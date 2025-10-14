@@ -9,7 +9,7 @@
 
 ## ── .✦ PONYTOWN ✦. ──
 on pt, im either offtab (for studying), making ponies or chatting with close friends ฅ^•ﻌ•^ฅ
-####C+H IS GREATLY APPRECIATED <3 im down to cuddle + chat, oh yyeess!
+#### C+H IS GREATLY APPRECIATED <3 im down to cuddle + chat, oh yyeess!
 #### i dont mind you copying my ponies, as long as you credit me <3
 
 ## ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ additional info
