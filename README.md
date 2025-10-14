@@ -4,17 +4,13 @@
 
 ## ── .✦ ROBLOX ✦. ──
 #### my roblox username will be linked in my github<3 . i may not see your friend request at first, since i got so many of my friends online (╥﹏╥)
-#### my favourite games include:
-#### regretevator ✶ pressure ✶ doors ✶ evade ✶ grace ✶ sewh ✶ zombie attack ✶ 4saken
+#### my favourite games include: regretevator ✶ pressure ✶ doors ✶ evade ✶ grace ✶ sewh ✶ zombie attack ✶ 4saken
 #### pls int if you enjoy any of these! (˶˃ ᵕ ˂˶)
 
 ## ── .✦ PONYTOWN ✦. ──
-on pt, im either offtab (for studying), making ponies or chatting with close friends
-#### C+H IS GREATLY APPRECIATED <3 im down to cuddle + chat, oh yyeess!
-#### usually hanging around bakery
-#### if my bio says im offtab, pls w2i so you can get my attention twin!!
+on pt, im either offtab (for studying), making ponies or chatting with close friends ฅ^•ﻌ•^ฅ
+####C+H IS GREATLY APPRECIATED <3 im down to cuddle + chat, oh yyeess!
 #### i dont mind you copying my ponies, as long as you credit me <3
-#### ACTUALLY PLEASE TAKE INSPOS OF MY PONIES,, I LOVE THEM heh.. ฅ^•ﻌ•^ฅ
 
 ## ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ additional info
 #### so yeah,,, uhhm,, gulps,, hi again ฅ≽(•⩊ •マ≼
