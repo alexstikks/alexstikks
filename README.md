@@ -1,16 +1,11 @@
-## hiya ˗ˏˋ ★ ˎˊ˗ 13/10/25  you can find me either studying, on roblox, or on ponytown! ⋆✴︎˚｡⋆
+## hiya ˗ˏˋ ★ ˎˊ˗ 13/10/25
+#### you can find me either studying, on roblox, or on ponytown! ⋆✴︎˚｡⋆
 #### music is life - give me song recommendations!! (check out my playlists!!)
 
 ## ── .✦ ROBLOX ✦. ──
-#### my roblox username will be linked in my github<3
-i may not see your friend request at first, since i got so many of my friends online (╥﹏╥)
+#### my roblox username will be linked in my github<3 . i may not see your friend request at first, since i got so many of my friends online (╥﹏╥)
 #### my favourite games include:
-✶ regretevator
-#### ✶ pressure / doors
-#### ✶ something evil will happen
-#### ✶ evade
-#### ✶ grace
-#### ✶ zombie attack
+#### regretevator ✶ pressure ✶ doors ✶ evade ✶ grace ✶ sewh ✶ zombie attack ✶ 4saken
 #### pls int if you enjoy any of these! (˶˃ ᵕ ˂˶)
 
 ## ── .✦ PONYTOWN ✦. ──
