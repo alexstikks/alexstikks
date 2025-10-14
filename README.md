@@ -1,5 +1,4 @@
-## hiya ˗ˏˋ ★ ˎˊ˗ 13/10/25
-#### you can find me either studying, on roblox, or on ponytown! ⋆✴︎˚｡⋆
+## hiya ˗ˏˋ ★ ˎˊ˗ 13/10/25  you can find me either studying, on roblox, or on ponytown! ⋆✴︎˚｡⋆
 #### music is life - give me song recommendations!! (check out my playlists!!)
 
 ## ── .✦ ROBLOX ✦. ──
