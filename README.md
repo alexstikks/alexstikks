@@ -19,7 +19,8 @@ on pt, im either offtab (for studying), making ponies or chatting with close fri
 #### [13/10/25 - NOT FINISHED, STILL WIP]
 #### my dms are always open on discord (my username is in guns.lol in links)
 
-goodbye. ⋆✴︎˚｡⋆
+goodbye. ⋆✴︎˚｡⋆ <img width="36" height="20" alt="image" src="https://github.com/user-attachments/assets/73f91f39-92c6-418d-837d-0c6f48a86558" />
+
 
 #### [I WILL ADD IMAGES HERE SOON... trust]
 <!--
