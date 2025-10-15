@@ -1,8 +1,7 @@
-##  ![angel wing 1](https://github.com/user-attachments/assets/5b5228da-5458-461c-a123-7c95f7631663)
-hiya ˗ˏˋ ★ ˎˊ˗ 13/10/25 
+##  ![angel wing 1](https://github.com/user-attachments/assets/5b5228da-5458-461c-a123-7c95f7631663) hiya ˗ˏˋ ★ ˎˊ˗ 13/10/25 ![angel wing 2](https://github.com/user-attachments/assets/8337831d-6275-45f1-a9f1-c056d2036e6d)
 
-#### <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/19e33109-d77d-43a0-aaf1-826e2bf2206b" /> you can find me either studying, on roblox, or on ponytown! ⋆✴︎˚｡⋆
-#### <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/1c3eb2b4-b25c-42b3-9dd2-ce14a9ac6b13" /> music is life - give me song recommendations!! (check out my playlists!!)
+#### ![sparkle github](https://github.com/user-attachments/assets/df0c6ad2-a9c7-4a33-8ca9-190ee133710c) you can find me either studying, on roblox, or on ponytown! ⋆✴︎˚｡⋆
+#### ![sparkle github](https://github.com/user-attachments/assets/df0c6ad2-a9c7-4a33-8ca9-190ee133710c) music is life - give me song recommendations!! (check out my playlists!!)
 
 ## ── .✦ ROBLOX ✦. ──
 #### my roblox username will be linked in my github<3 . i may not see your friend request at first, since i got so many of my friends online (╥﹏╥)
