@@ -2,7 +2,7 @@
 
 ## ![angel wing 1](https://github.com/user-attachments/assets/5b5228da-5458-461c-a123-7c95f7631663) alex . 16 . she/her ![angel wing 2](https://github.com/user-attachments/assets/8337831d-6275-45f1-a9f1-c056d2036e6d)
 
-#### ![sparkle github](https://github.com/user-attachments/assets/df0c6ad2-a9c7-4a33-8ca9-190ee133710c) i am usually online,but if not,, im offtab either studying or plying another game; roblox, mouthwashing, omori + yume nikki ⋆✴︎˚｡⋆
+#### ![sparkle github](https://github.com/user-attachments/assets/df0c6ad2-a9c7-4a33-8ca9-190ee133710c) i am usually online,but if not,, im offtab either studying or plying another game; roblox, mouthwashing, omori, yume nikki + pangya reborn ⋆✴︎˚｡⋆
 #### ![sparkle github](https://github.com/user-attachments/assets/df0c6ad2-a9c7-4a33-8ca9-190ee133710c) music is life - give me song recommendations!! (check out my playlists!!)
 
 ## ── .✦ ROBLOX ✦. ──
