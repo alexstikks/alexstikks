@@ -15,7 +15,7 @@ on pt, im either offtab (for studying), making ponies or chatting with close fri
 #### C+H IS GREATLY APPRECIATED <3 im down to cuddle + chat, oh yyeess!
 #### i dont mind you copying my ponies, as long as you credit me <3
 goodbye. ⋆✴︎˚｡⋆ <img width="36" height="20" alt="image" src="https://github.com/user-attachments/assets/73f91f39-92c6-418d-837d-0c6f48a86558" />
-#### [I WILL ADD IMAGES HERE SOON... trust]
+
 <img width="1280" height="188" alt="border bottom" src="https://github.com/user-attachments/assets/abef7035-810c-459f-8e26-c7eff5b94325" />
 
 <!--
