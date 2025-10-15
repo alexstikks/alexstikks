@@ -6,9 +6,8 @@
 #### ![sparkle github](https://github.com/user-attachments/assets/df0c6ad2-a9c7-4a33-8ca9-190ee133710c) music is life - give me song recommendations!! (check out my playlists!!)
 
 ## ── .✦ ROBLOX ✦. ──
-#### ![sparkle github](https://github.com/user-attachments/assets/df0c6ad2-a9c7-4a33-8ca9-190ee133710c) my roblox username will be linked in my github<3 . i may not see your friend request at first, since i got so many of my friends online (╥﹏╥)
-#### ![bell github](https://github.com/user-attachments/assets/f66b4b4c-6a90-4185-856a-89cd53807098) fav games: regretevator ✶ pressure ✶ doors ✶ evade ✶ grace ✶ sewh
-#### ![sparkle github](https://github.com/user-attachments/assets/df0c6ad2-a9c7-4a33-8ca9-190ee133710c) pls int if you enjoy any of these! (˶˃ ᵕ ˂˶)
+#### ![sparkle github](https://github.com/user-attachments/assets/df0c6ad2-a9c7-4a33-8ca9-190ee133710c) my roblox username will be linked in my github<3
+#### ![bell github](https://github.com/user-attachments/assets/f66b4b4c-6a90-4185-856a-89cd53807098) fav games: regretevator ✶ pressure ✶ doors ✶ evade ✶ grace ✶ sewh . pls int if you enjoy any of these! (˶˃ ᵕ ˂˶)
 
 ## ── .✦ PONYTOWN ✦. ──
 #### ![sparkle github](https://github.com/user-attachments/assets/df0c6ad2-a9c7-4a33-8ca9-190ee133710c) on pt, im either offtab (for studying), making ponies or chatting with close friends <3
