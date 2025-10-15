@@ -14,9 +14,8 @@
 #### ![sparkle github](https://github.com/user-attachments/assets/df0c6ad2-a9c7-4a33-8ca9-190ee133710c) on pt, im either offtab (for studying), making ponies or chatting with close friends <3
 #### ![heartttt github](https://github.com/user-attachments/assets/8f6c0cb7-230a-4b0e-ba7d-f9148209d8d1) C+H IS GREATLY APPRECIATED <3 im down to cuddle + chat, oh yyeess!
 #### ![sparkle github](https://github.com/user-attachments/assets/df0c6ad2-a9c7-4a33-8ca9-190ee133710c) i dont mind you copying my ponies, as long as you credit me ฅ^•ﻌ•^ฅ
-goodbye. ⋆✴︎˚｡⋆ 
-<img width="36" height="20" alt="image" src="https://github.com/user-attachments/assets/73f91f39-92c6-418d-837d-0c6f48a86558" />
-
+goodbye. ⋆✴︎˚｡⋆ <img width="36" height="20" alt="image" src="https://github.com/user-attachments/assets/73f91f39-92c6-418d-837d-0c6f48a86558" />
+![knives](https://github.com/user-attachments/assets/ab991529-ab1a-4cf8-9e9e-dc8fb2ff118a)
 <img width="1280" height="188" alt="border bottom" src="https://github.com/user-attachments/assets/abef7035-810c-459f-8e26-c7eff5b94325" />
 
 <!--
