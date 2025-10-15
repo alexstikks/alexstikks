@@ -1,5 +1,4 @@
 <img width="1280" height="188" alt="border" src="https://github.com/user-attachments/assets/5ccac976-6b39-4fe4-bf71-36b934da2adf" />
-
 ##  ![angel wing 1](https://github.com/user-attachments/assets/5b5228da-5458-461c-a123-7c95f7631663) hiya ˗ˏˋ ★ ˎˊ˗ 13/10/25 ![angel wing 2](https://github.com/user-attachments/assets/8337831d-6275-45f1-a9f1-c056d2036e6d)
 
 #### ![sparkle github](https://github.com/user-attachments/assets/df0c6ad2-a9c7-4a33-8ca9-190ee133710c) you can find me either studying, on roblox, or on ponytown! ⋆✴︎˚｡⋆
@@ -15,7 +14,6 @@ on pt, im either offtab (for studying), making ponies or chatting with close fri
 #### C+H IS GREATLY APPRECIATED <3 im down to cuddle + chat, oh yyeess!
 #### i dont mind you copying my ponies, as long as you credit me <3
 goodbye. ⋆✴︎˚｡⋆ <img width="36" height="20" alt="image" src="https://github.com/user-attachments/assets/73f91f39-92c6-418d-837d-0c6f48a86558" />
-
 <img width="1280" height="188" alt="border bottom" src="https://github.com/user-attachments/assets/abef7035-810c-459f-8e26-c7eff5b94325" />
 
 <!--
