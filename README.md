@@ -12,10 +12,10 @@
 
 ## ── .✦ PONYTOWN ✦. ──
 on pt, im either offtab (for studying), making ponies or chatting with close friends ฅ^•ﻌ•^ฅ
-#### ![heart github](https://github.com/user-attachments/assets/878a7d33-9810-4335-9744-15fbad0e7b3d) C+H IS GREATLY APPRECIATED <3 im down to cuddle + chat, oh yyeess!
+#### C+H IS GREATLY APPRECIATED <3 im down to cuddle + chat, oh yyeess!
 #### i dont mind you copying my ponies, as long as you credit me <3
 
-## ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ additional info ![deer github](https://github.com/user-attachments/assets/8e893a7a-f119-4637-9ac8-d2940320c578)
+## ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ additional info
 #### so yeah,,, uhhm,, gulps,, hi again ฅ≽(•⩊ •マ≼
 #### if you want to find out more about me then check out my strawpage!!
 #### [13/10/25 - NOT FINISHED, STILL WIP]
