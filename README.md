@@ -16,7 +16,7 @@
 #### ![sparkle github](https://github.com/user-attachments/assets/df0c6ad2-a9c7-4a33-8ca9-190ee133710c) i dont mind you copying my ponies, as long as you credit me ฅ^•ﻌ•^ฅ
 goodbye. ⋆✴︎˚｡⋆ <img width="36" height="20" alt="image" src="https://github.com/user-attachments/assets/73f91f39-92c6-418d-837d-0c6f48a86558" />
 
-![sexbobomb](https://github.com/user-attachments/assets/e89edbd7-f517-4494-8335-20fbceb1dc25)
+![pest](https://github.com/user-attachments/assets/44b699b7-c3c9-4bd3-8e43-c2799d796614)
 
 <img width="1280" height="188" alt="border bottom" src="https://github.com/user-attachments/assets/abef7035-810c-459f-8e26-c7eff5b94325" />
 
