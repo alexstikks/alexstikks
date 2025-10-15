@@ -1,4 +1,4 @@
-<img width="1280" height="188" alt="border" src="https://github.com/user-attachments/assets/ea453cd8-6ad1-4f9e-ae72-bbba3609a799" />
+<img width="1280" height="163" alt="border 2" src="https://github.com/user-attachments/assets/ac6b00f6-43c8-4f9f-b147-846bcbc81eec" />
 
 ##  ![angel wing 1](https://github.com/user-attachments/assets/5b5228da-5458-461c-a123-7c95f7631663) hiya ˗ˏˋ ★ ˎˊ˗ 13/10/25 ![angel wing 2](https://github.com/user-attachments/assets/8337831d-6275-45f1-a9f1-c056d2036e6d)
 
