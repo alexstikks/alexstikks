@@ -1,4 +1,4 @@
-## hiya ˗ˏˋ ★ ˎˊ˗ 13/10/25 <img width="30" height="23" alt="image" src="https://github.com/user-attachments/assets/74e1aa69-43a9-48ff-aa51-39002efb1f57" />
+## <img width="30" height="23" alt="image" src="https://github.com/user-attachments/assets/ff36f8bd-8f70-4681-ac10-612c41321250" /> hiya ˗ˏˋ ★ ˎˊ˗ 13/10/25 <img width="30" height="23" alt="image" src="https://github.com/user-attachments/assets/b5b7c7f7-cde9-4f79-8945-8b319af5ef36" />
 
 #### you can find me either studying, on roblox, or on ponytown! ⋆✴︎˚｡⋆
 #### music is life - give me song recommendations!! (check out my playlists!!)
