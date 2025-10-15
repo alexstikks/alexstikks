@@ -6,14 +6,14 @@
 #### ![sparkle github](https://github.com/user-attachments/assets/df0c6ad2-a9c7-4a33-8ca9-190ee133710c) music is life - give me song recommendations!! (check out my playlists!!)
 
 ## ── .✦ ROBLOX ✦. ──
-#### ![bow github](https://github.com/user-attachments/assets/1bac12d2-4b63-4820-b1c6-8e7451ca3548) my roblox username will be linked in my github<3 . i may not see your friend request at first, since i got so many of my friends online (╥﹏╥)
-#### my favourite games include: regretevator ✶ pressure ✶ doors ✶ evade ✶ grace ✶ sewh
-#### pls int if you enjoy any of these! (˶˃ ᵕ ˂˶)
+#### ![sparkle github](https://github.com/user-attachments/assets/df0c6ad2-a9c7-4a33-8ca9-190ee133710c) my roblox username will be linked in my github<3 . i may not see your friend request at first, since i got so many of my friends online (╥﹏╥)
+#### ![bell github](https://github.com/user-attachments/assets/f66b4b4c-6a90-4185-856a-89cd53807098) my favourite games include: regretevator ✶ pressure ✶ doors ✶ evade ✶ grace ✶ sewh
+#### ![sparkle github](https://github.com/user-attachments/assets/df0c6ad2-a9c7-4a33-8ca9-190ee133710c) pls int if you enjoy any of these! (˶˃ ᵕ ˂˶)
 
 ## ── .✦ PONYTOWN ✦. ──
-on pt, im either offtab (for studying), making ponies or chatting with close friends ฅ^•ﻌ•^ฅ
-#### C+H IS GREATLY APPRECIATED <3 im down to cuddle + chat, oh yyeess!
-#### ![cross github](https://github.com/user-attachments/assets/79a42f85-1f69-4df1-80fd-69aace49b3e7) i dont mind you copying my ponies, as long as you credit me <3
+#### ![sparkle github](https://github.com/user-attachments/assets/df0c6ad2-a9c7-4a33-8ca9-190ee133710c) on pt, im either offtab (for studying), making ponies or chatting with close friends ฅ^•ﻌ•^ฅ
+#### ![heartttt github](https://github.com/user-attachments/assets/8f6c0cb7-230a-4b0e-ba7d-f9148209d8d1) C+H IS GREATLY APPRECIATED <3 im down to cuddle + chat, oh yyeess!
+#### ![bandage github](https://github.com/user-attachments/assets/a766bc70-ef91-4025-8d9c-f448c09e98d3) i dont mind you copying my ponies, as long as you credit me <3
 goodbye. ⋆✴︎˚｡⋆ <img width="36" height="20" alt="image" src="https://github.com/user-attachments/assets/73f91f39-92c6-418d-837d-0c6f48a86558" />
 
 <img width="1280" height="188" alt="border bottom" src="https://github.com/user-attachments/assets/abef7035-810c-459f-8e26-c7eff5b94325" />
