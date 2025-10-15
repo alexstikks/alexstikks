@@ -1,4 +1,4 @@
-<img width="1280" height="163" alt="border 2" src="https://github.com/user-attachments/assets/ac6b00f6-43c8-4f9f-b147-846bcbc81eec" />
+<img width="1280" height="188" alt="border" src="https://github.com/user-attachments/assets/5ccac976-6b39-4fe4-bf71-36b934da2adf" />
 
 ##  ![angel wing 1](https://github.com/user-attachments/assets/5b5228da-5458-461c-a123-7c95f7631663) hiya ˗ˏˋ ★ ˎˊ˗ 13/10/25 ![angel wing 2](https://github.com/user-attachments/assets/8337831d-6275-45f1-a9f1-c056d2036e6d)
 
@@ -12,10 +12,10 @@
 
 ## ── .✦ PONYTOWN ✦. ──
 on pt, im either offtab (for studying), making ponies or chatting with close friends ฅ^•ﻌ•^ฅ
-#### C+H IS GREATLY APPRECIATED <3 im down to cuddle + chat, oh yyeess!
+#### ![heart github](https://github.com/user-attachments/assets/878a7d33-9810-4335-9744-15fbad0e7b3d) C+H IS GREATLY APPRECIATED <3 im down to cuddle + chat, oh yyeess!
 #### i dont mind you copying my ponies, as long as you credit me <3
 
-## ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ additional info
+## ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ additional info ![deer github](https://github.com/user-attachments/assets/8e893a7a-f119-4637-9ac8-d2940320c578)
 #### so yeah,,, uhhm,, gulps,, hi again ฅ≽(•⩊ •マ≼
 #### if you want to find out more about me then check out my strawpage!!
 #### [13/10/25 - NOT FINISHED, STILL WIP]
