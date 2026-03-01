@@ -9,6 +9,8 @@
 
 ###### <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/FzgKF6cb/br96.gif' border='0' alt='br96'></a> c+h greatly appreciated, i find huge comfort in it ^_^
 
+###### <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/449d655c/wrvbby.gif' border='0' alt='wrvbby'></a> don't be scared to int! i'm glad to make new friends <3
+
 ###### <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/9Qzcs0xY/eys7ho.gif' border='0' alt='eys7ho'></a> idm if you copy my ponies!! im happy to help players with pony-making ‎ദ്ദി •⩊• )
 
 #### fandoms <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/L68SZhMF/5zunt3.gif' border='0' alt='5zunt3'></a>
