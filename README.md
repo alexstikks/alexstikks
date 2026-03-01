@@ -8,8 +8,6 @@
 
 ###### <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/L68SZhMF/5zunt3.gif' border='0' alt='5zunt3'></a> fandoms - roblox // regretevator, sewh, forsaken, grace // . omori . little nightmares . yume nikki
 
-<a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/WbcS7nyc/image-2024-05-23-214001293.png' border='0' alt='image-2024-05-23-214001293'></a>
-
 ###### <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/k5fQSt82/bcc5222b825be7e0f08937e877d0f124c59b01f6.gif' border='0' alt='bcc5222b825be7e0f08937e877d0f124c59b01f6'></a> this is still a wip!! pls be patient (◞‸◟；)
 
 <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/nLsYhjJN/image0.webp' border='0' alt='image0'></a>
