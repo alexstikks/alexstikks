@@ -6,7 +6,6 @@
 
 ###### <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/X7pftghx/40bm9y.gif' border='0' alt='40bm9y'></a> info - alex . 16 yrs . she/her ‎ ‎ (♡ˊ͈ ꒳ ˋ͈)  <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/9Qzcs0xY/eys7ho.gif' border='0' alt='eys7ho'></a>
 
-<a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/3xwWGMYb/image-2024-05-26-153945128.png' border='0' alt='image-2024-05-26-153945128'></a>
 <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/qM4NkhY0/image-2024-05-26-153929846.png' border='0' alt='image-2024-05-26-153929846'></a>
 <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/WbcS7nyc/image-2024-05-23-214001293.png' border='0' alt='image-2024-05-23-214001293'></a>
 
