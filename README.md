@@ -5,6 +5,8 @@
 
 ###### <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/X7pftghx/40bm9y.gif' border='0' alt='40bm9y'></a> info - alex . 16 yrs . she/her ‎ ‎ (♡ˊ͈ ꒳ ˋ͈)  
 
+###### <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/9Qzcs0xY/eys7ho.gif' border='0' alt='eys7ho'></a> i am usually online, but if not, i am offtab or studying - please w2i
+
 ###### <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/FzgKF6cb/br96.gif' border='0' alt='br96'></a> c+h greatly appreciated, i find huge comfort in it ^_^
 
 ###### <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/9Qzcs0xY/eys7ho.gif' border='0' alt='eys7ho'></a> idm if you copy my ponies!! im happy to help players with pony-making ‎ദ്ദി •⩊• )
