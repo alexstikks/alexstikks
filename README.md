@@ -15,7 +15,7 @@
 
 #### fandoms <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/L68SZhMF/5zunt3.gif' border='0' alt='5zunt3'></a>
 
-###### <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/9Qzcs0xY/eys7ho.gif' border='0' alt='eys7ho'></a> video games - roblox // regretevator, sewh, forsaken, grace // . omori . little nightmares . yume nikki . minecraft . deltarune / undertale . mouthwashing
+###### <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/9Qzcs0xY/eys7ho.gif' border='0' alt='eys7ho'></a> video games - roblox // regretevator, sewh, forsaken, grace // . omori . little nightmares . yume nikki . minecraft . deltarune . undertale . mouthwashing
 
 ###### <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/9Qzcs0xY/eys7ho.gif' border='0' alt='eys7ho'></a> tv shows / movies - squid game . aib . i'm not ok w this . the end of the f*cking world . scott pilgrim . arcane . the breakfast club . dead poet's society
 
